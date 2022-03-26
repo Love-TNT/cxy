@@ -1,2 +1,2 @@
 # LOVE YOU
-## * to you * https://tnt-love.github.io/cxy/
+## _To you_ https://tnt-love.github.io/cxy/
